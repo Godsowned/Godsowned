@@ -20,7 +20,7 @@
 ---
 
 ### 📫 Let’s Connect  
-- [LinkedIn](https://www.linkedin.com/in/philliposken/0
+- [LinkedIn](https://www.linkedin.com/in/philliposken/0)
 - [Upwork](https://www.upwork.com/freelancers/~01d4385726d9ccbac7?mp_source=share)  
 
 ---
